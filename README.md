@@ -3,4 +3,4 @@
 https://codeforces.com/profile/Rasel__/
 https://www.kaggle.com/myjzoj1cidsocoxwiq
 
-Telegram: @vre_rasel
+Telegram: [@vre_rasel](https://t.me/vre_rasel)
